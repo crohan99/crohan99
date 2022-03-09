@@ -1,0 +1,4 @@
+- I develop software for lab automation machines and in my free time I write bugs into little projects of my own
+- Hobbies include running, biking, backpacking, 3d printing, taking tech apart, forgetting to put it back together
+- ΣΦΕ
+- carson.rohan@gmail.com
